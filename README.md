@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Gino Andres Valentini: @GinoValentiniR
+- 👀 My main interest are the area of Renewable Energies and Data.
+- 🌱 I’m currently studying a Professional Master in Artificial Intelligence and Innovation Management in Bologna Business School in Italy and a Micro Master in Data Analyst in Universidad del Desarrollo in Chile.
+- 💞️ I’m looking to collaborate with companies related to the energy sector who wants to enhance their productivity.
+- 📫 How to reach me: https://www.linkedin.com/in/gino-valentini-96070b141/
